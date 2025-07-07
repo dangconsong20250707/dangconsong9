@@ -17,4 +17,4 @@
 
 本站不仅提供免费的日本AV资源，还确保每个视频都能在多个设备上轻松观看，免去广告干扰，让您尽享无忧观看体验。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/dangconsong20250707/dangconsong9 ）</span>
